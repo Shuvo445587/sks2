@@ -1,2 +1,2 @@
 # sks2
-Great repository names are short
+https://shuvo445587.github.io/sks2/
